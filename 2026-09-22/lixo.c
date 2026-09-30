@@ -1,3 +1,0 @@
-ola
-ole
-oli
